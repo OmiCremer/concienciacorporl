@@ -1,4 +1,4 @@
-# concienciacorporl
+# concienciacorporal
 Pagina que apunta a la conciencia coporal
 
 Conscience corporal de instagram sacar la mayor cantidad de imágenes
